@@ -1,6 +1,6 @@
 <div align="center">
 ＿人人人人人人＿<br>
-＞ 退　職　願 ＜<br>
+＞ 退　職　届 ＜<br>
 ￣ＹＹＹＹＹＹ￣<br>
 </div>
 
