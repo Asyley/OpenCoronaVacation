@@ -1,5 +1,7 @@
 <div align="center">
-退職願
+＿人人人人人人＿<br>
+＞ 退　職　願 ＜<br>
+￣ＹＹＹＹＹＹ￣<br>
 </div>
 
 <div align="left">
