@@ -1,3 +1,5 @@
+![YoSay](https://user-images.githubusercontent.com/4879744/181262659-9d089c0a-51bd-46cf-947c-572dc74cfd36.png)
+
 <div align="center">
 ＿人人人人人人人人人人人人人人＿<br>
 ＞ LETTER OF RESIGNATION ＜<br>
