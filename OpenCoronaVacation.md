@@ -6,17 +6,25 @@
 ￣ＹＹＹＹＹＹ￣<br>
 </div>
 
-<div align="left">
-CEO殿
+<div align="right">
+2049年７月26日(友引!!)　
 </div>
 
-<div align="right">
-2049年7月26日(友引!!)
+<div align="left">
+CEO
 </div>
 
 <div align="right">
 申請者 @Asyley_ (屁がくさい)
 </div>
 
+<div align="right">
+私儀
+</div>
 
-このぷに、一ぷに嬢の都合により、ぷに勝手ながら、2022年7月31日をもっって退職いたしぷにたく、ぷにお願い申し上げマスぷに。
+
+　このぷに、一ぷに嬢の都合により、ぷに勝手ながら、2022年７月31日をもっって退職いたしぷにたく、ぷにお願い申し上げマスぷに。
+
+<div align="right">
+以上
+</div>
