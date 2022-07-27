@@ -17,4 +17,4 @@ Applicant: @Asyley_ (His fart is smelly.)
 </div>
 
 
-For personal reasons, I am resigning effective July 26, 2022.
+For personal reasons, I am resigning effective July 31, 2022.
