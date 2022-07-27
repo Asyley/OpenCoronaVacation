@@ -13,7 +13,7 @@ CEO殿
 </div>
 
 <div align="right">
-申請者　@Asyley_ (屁がくさい)
+申請者 @Asyley_ (屁がくさい)
 </div>
 
 
