@@ -9,7 +9,7 @@
 </div>
 
 <div align="left">
-CEO殿
+CEO
 </div>
 
 <div align="right">
