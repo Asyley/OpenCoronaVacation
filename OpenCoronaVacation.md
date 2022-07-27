@@ -4,12 +4,12 @@
 ￣ＹＹＹＹＹＹ￣<br>
 </div>
 
-<div align="left">
-CEO殿
-</div>
-
 <div align="right">
 2049年７月26日(友引!!)　
+</div>
+
+<div align="left">
+CEO殿
 </div>
 
 <div align="right">
